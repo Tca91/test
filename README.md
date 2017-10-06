@@ -1,3 +1,3 @@
 # test
 ## Tror den virker, alle enheder tjek for sammenkobling
-### Kan jeg også være med :D
+Så fucking hot at gå på højskole
